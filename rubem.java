@@ -1,0 +1,1 @@
+arre[endasse] seu idolatra
